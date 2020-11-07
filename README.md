@@ -1,0 +1,2 @@
+Semolina , when made sweet , is called Semolina halwa . Several varients of the dish are available under other names in various parts of India . For instance , in Maharashtra , it is called Sheera which is the sweet version and in North India it is called Sooji Halwa or Mohan Bhog. In the Caribbean , it is known by Indo-Caribbeans as Mohan Bhog or simply just as parsad, as it is a common sweet that Hindu Indo-Caribbeans charhaway or offer as prasad in pujas. It is called Sajjige in parts of Tulunadu. It is also served in Europe and United States as semolina pudding.
+  
